@@ -1,4 +1,4 @@
-——「✮!! [ Rat's ] Intro !!✮」——
+https://graphic.neocities.org/tumblr_inline_p5t77htaKX1tbwrjk_500.gif ——「✮!! [ Rat's ] Intro !!✮」——
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
