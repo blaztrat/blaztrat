@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/5907cc38-0fd7-4557-b418-de66752db916)![image](https://github.com/user-attachments/assets/356a5c88-2408-4b4d-9445-3c72f9aaaa12)![image](https://github.com/user-attachments/assets/eced2bab-0871-4a9e-b861-8921833bc279)![image](https://github.com/user-attachments/assets/4c038a11-1ae5-4154-9830-028a45e32594)![image](https://github.com/user-attachments/assets/b5c0335e-5b7f-465e-9060-e324ebfd287f)![image](https://github.com/user-attachments/assets/d40d009b-af64-42d0-9c96-91cbd0a2fe39)![image](https://github.com/user-attachments/assets/0e0f16d5-3a91-49a1-ab78-e372631246b7)![image](https://github.com/user-attachments/assets/a3b167ec-c974-45d5-bf06-5527ff182374)
+
+
 ——「✮!! [ Rat's ] Intro !!✮」——
 
 
@@ -47,7 +50,12 @@
 
 < https://emojicombos.com/lake! >
 
-⠀⠀⠀⠀⠀⠀⠀⠀
+![image](https://github.com/user-attachments/assets/5907cc38-0fd7-4557-b418-de66752db916)![image](https://github.com/user-attachments/assets/356a5c88-2408-4b4d-9445-3c72f9aaaa12)![image](https://github.com/user-attachments/assets/eced2bab-0871-4a9e-b861-8921833bc279)![image](https://github.com/user-attachments/assets/4c038a11-1ae5-4154-9830-028a45e32594)![image](https://github.com/user-attachments/assets/b5c0335e-5b7f-465e-9060-e324ebfd287f)![image](https://github.com/user-attachments/assets/d40d009b-af64-42d0-9c96-91cbd0a2fe39)![image](https://github.com/user-attachments/assets/0e0f16d5-3a91-49a1-ab78-e372631246b7)![image](https://github.com/user-attachments/assets/a3b167ec-c974-45d5-bf06-5527ff182374)
+
+
+![image](https://github.com/user-attachments/assets/9aec6ae5-47b1-42da-a714-da28e508a143)
+
+
 
 <!---
 blaztrat/blaztrat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
