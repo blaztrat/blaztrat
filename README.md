@@ -43,7 +43,7 @@
 ✮┆DM, and whisper/ping status:: DM's, whispers, and pings are always open!, but please whisper/ping me if I am afk, or off tab (ponytown)
 
 
-✮┆𝙴𝚡𝚝𝚛𝚊:: I would love drawings of any of my characters!, if you draw my pony please send it to my discord !!!!
+✮┆"Can i draw you/your pony?":: I would love drawings of any of my characters!, if you draw my pony please send it to my discord !!!!
 
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
